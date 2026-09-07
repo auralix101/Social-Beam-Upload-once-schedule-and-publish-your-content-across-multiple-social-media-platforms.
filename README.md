@@ -1,3 +1,4 @@
+![Social Beam](./SocialBeam_Small_Promo_440x280(3).png)
 # Social-Beam-Upload-once-schedule-and-publish-your-content-across-multiple-social-media-platforms.
 # 🚀 Social Beam — Post Once. Reach Everywhere.
 
